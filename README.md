@@ -6,10 +6,5 @@
 
 <h2>  ⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘</h2>
 
-              
-
-
-
-
 
 <h6>  Strawpage still unprogress! </h6>
