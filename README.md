@@ -1,16 +1,5 @@
-<img align= "right" height= "120" src= "https://i.pinimg.com/originals/cd/4a/dd/cd4addb03dbfb01b2fe3072990e42ea6.gif" />
+<img src= "https://i.pinimg.com/736x/85/a4/cf/85a4cfb8bc1b81ec0c6c190acf200f03.jpg" />
 
+<h1>. ݁₊ ⊹ .. ݁₊ ⊹ . ݁˖ . ݁. ݁₊ ⊹ . ݁˖ . ݁ ݁˖ . ݁. ݁₊ ⊹ . ݁˖ . ݁. ݁₊ ⊹ . ݁˖ . ݁. ݁₊ ⊹ . ݁˖ . ݁. ݁</h1>
 
-<img align= "left" height= "120" src= "https://i.pinimg.com/originals/98/bf/2b/98bf2bab3eca90338da2a441c34fc8f1.gif" />
-
-<h3>-.-- --- ..- .-. / --. .- -.-- / .- ... / ..-. ..- -.-. -.- / -.--. -.-. .... . -.-. -.- / -- -.-- / ... - .-. .- .-- .--. .- --. . -.--.- / -....- / ... - .. .-.. .-.. / ..- -. ..-. .. -. .. ... .... . -..
-</h3>
-
-<h4> Morse code ^   =#- + Strawpage in unprogressed!</h4> 
-
-<img align= "right" height= "120" src= "https://i.pinimg.com/originals/98/bf/2b/98bf2bab3eca90338da2a441c34fc8f1.gif" />
-
-
-<img align= "left" height= "120" src= "https://i.pinimg.com/originals/cd/4a/dd/cd4addb03dbfb01b2fe3072990e42ea6.gif" />
-
-
+<h6> Ｃｈｅｃｋ ｍｙ ｓｔｒａｗｐａｇｅ ! ! ( unprogress ! !) </h6>
