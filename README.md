@@ -1,4 +1,4 @@
-<img height= "280" src= "https://i.pinimg.com/736x/6a/2e/80/6a2e80b5482efbfdf4eecc8c25091a04.jpg" />
+<img height= "570" src= "https://i.pinimg.com/736x/0d/40/76/0d40769db137ab7f4f30135956cf8014.jpg" />
 
 <h1>. ݁₊ ⊹ .. ݁₊ ⊹ . ݁˖ . ݁. ݁₊ ⊹ . ݁˖ . ݁ ݁˖ . ݁. ݁₊ ⊹ . ݁˖ . ݁. ݁₊ ⊹ . ݁˖ . ݁. ݁₊ ⊹ . ݁˖ . ݁.˖ . ݁. ݁₊ ⊹ . ݁˖ . ݁. ݁₊ ⊹ </h1>
 
