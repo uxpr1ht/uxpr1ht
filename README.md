@@ -6,20 +6,4 @@
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=bandwidth&weight=300&size=25&letterSpacing=yes&pause=1000&color=2A4FCA&center=true&vCenter=true&width=970&lines=...;I....;I+despite+you+better..++till;....)](https://git.io/typing-svg)
 
-                   + 𑣲Follow me up gang୭˚. ᵎᵎ × 
-                   
-                           Me free pls yes lalala
-                           
-                                check strawpage meeennnn sooo
-                                
-                                       sign the ata for me meeenn🤤
-                                       
-                  AUTISM.                        Give me robux ok,.,? 𐔌՞. .՞𐦯     Homosexuality  <\3  ૮₍ ˶ᵔ ᵕ ᵔ˶ ₎ა  
-                  
-                                     Give me mercy pls laal ok..?  
-                                     
-                          IHATEY8UYYYYUUUUUUUUU~~~~~~~~~~~ 🤤
-                          
-     Lala soo big she csn fit up to 5 towers in a min
-     
-                                FATTIES.
+<h6> + 𑣲Follow me up gang୭˚. ᵎᵎ × </h6>
