@@ -7,3 +7,8 @@
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=bandwidth&weight=300&size=25&letterSpacing=yes&pause=1000&color=2A4FCA&center=true&vCenter=true&width=970&lines=...;I....;I+despite+you+better..++till;....)](https://git.io/typing-svg)
 
                    + 𑣲Follow me up gang୭˚. ᵎᵎ × 
+                           Me free pls yes lalala
+                                check strawpage meeennnn sooo
+                                     sign the ata for me meeeeeenn🤤
+                                             Give me robux ok,.,? 𐔌՞. .՞𐦯                       nein
+                  
