@@ -1,4 +1,4 @@
-<img src= "https://media.discordapp.net/attachments/1234083910694994033/1427139668322943027/Untitled598_20251013114127.png?ex=68f8fba3&is=68f7aa23&hm=8d3d7fdb41320ec716abd4ed9bd62ece36f10933f1f5f6dc1f7c74149f9b6476&=&format=webp&quality=lossless&width=1104&height=683" width="2000" height="2000" />
+<img src= "https://media.discordapp.net/attachments/1234083910694994033/1427139668322943027/Untitled598_20251013114127.png?ex=69003be3&is=68feea63&hm=d891958b6950d368a73929147e4b516fa13a964ceebe1d083fc289b7e7b329b8&=&format=webp&quality=lossless&width=1104&height=683" width="2000" height="2000" />
 
 <p align="center">
 𑣲~ <img ⤷ src="https://komarev.com/ghpvc/?username=uxpr1ht"゛ ˎˊ˗ alt="Viewers~" /> ୭˚. ᵎᵎ
